@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Bee Profile Picture](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.123rf.com%2Fphoto_143211929_stock-vector-cute-bee-customer-service-operator-with-bubble-talk-cute-bee-wearing-headset-using-computer-laptop-f.html&psig=AOvVaw1D4xuaRwJnbyw5Q3pbb7tE&ust=1593555711430000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMiCj-WHqOoCFQAAAAAdAAAAABAD)
